@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Gowtham N
-- 📫 How to reach me [...](https://www.linkedin.com/in/gowtham-n-b47764271/)
+- 📫 How to reach me: (https://www.linkedin.com/in/gowtham-n-b47764271/)
 - 😄 Pronouns: he/him
